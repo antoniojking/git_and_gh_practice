@@ -1,0 +1,1 @@
+I am motivated to change my career because I want a more engaged and fulfilling life. I feel software development is something I'm interested and passionate about. Feeling eager and excited to play with my computer everyday seems like a good indicator I am on the right track.
